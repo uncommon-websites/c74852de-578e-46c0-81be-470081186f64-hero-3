@@ -1,0 +1,2 @@
+# c74852de-578e-46c0-81be-470081186f64-hero-3
+Hero section variant 3 for c74852de-578e-46c0-81be-470081186f64
